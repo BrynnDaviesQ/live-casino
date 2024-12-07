@@ -46,7 +46,7 @@
 | **1Xslots**   | [🏅 Играть Прямо Сейчас!](https://brandplay.link/hSB1khtr) | 🎉 **Множество акций**: Еженедельные бонусы и турниры. 🛡️ **Безопасность** | ⭐⭐⭐⭐⭐ | [📚 Узнать больше](https://brandplay.link/hSB1khtr) | 🏅 **Награды за активность**: участники программы лояльности получают специальные привилегии. |
 | **R7**        | [🚀 Играть Сейчас!](https://brandplay.link/bMd3Yjsw) | 🕒 **Круглосуточная поддержка**: Всегда на связи. 💸 **Высокие лимиты** | ⭐⭐⭐⭐⭐ | [📖 Узнать больше](https://brandplay.link/bMd3Yjsw) | 💬 **VIP-поддержка** для постоянных игроков с приоритетом. |
 
-![Live Casino](https://schaeffers-cdn.s3.amazonaws.com/images/default-source/schaeffers-cdn-images/default-images/sectors/bigstock-live-casino-gambling-concept-with-f-369012793.jpg?sfvrsn=493ad806_4)
+![Казино](https://schaeffers-cdn.s3.amazonaws.com/images/default-source/schaeffers-cdn-images/default-images/sectors/bigstock-casino-gambling-concept-with-f-369012793.jpg?sfvrsn=493ad806_4)
 
 ## Что такое **Live Casino**? 🤔
 
